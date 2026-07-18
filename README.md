@@ -123,3 +123,17 @@ Motivational Message
 
 <img width="1181" height="746" alt="Screenshot 2026-07-18 070140" src="https://github.com/user-attachments/assets/a80959e7-808c-4a6f-b2cd-cea0272969f2" />
 
+
+<img width="1899" height="863" alt="Screenshot 2026-07-18 071247" src="https://github.com/user-attachments/assets/c25aee68-50b5-4a66-a775-023385aa18f9" />
+
+
+<img width="1598" height="871" alt="Screenshot 2026-07-18 071337" src="https://github.com/user-attachments/assets/a674fc5e-0701-46eb-9ef8-898df3be1852" />
+
+
+<img width="1895" height="864" alt="Screenshot 2026-07-18 071311" src="https://github.com/user-attachments/assets/af340302-e412-42d0-be6f-31f42561783e" />
+
+
+
+
+
+VIDEO LINK: https://drive.google.com/drive/folders/1VLEr0kSW2I0BTkeCj2WNG_Ld5niLnmOU
